@@ -1,5 +1,5 @@
-☾ :: pls whisper 2 int i might be offtab/afk sometimes // u can c+h freely if i know you!!
+☾ :: pls whisper 2 int i might be offtab/afk sometimes // u can c+h freely if i know you!! // im mainly near the spawn, docks, bakery, ninah area or tmc area 
 
-☾ :: Fandoms INT : La Luna Falsa (The Fake Moon) // Adopting a Werewolf // Cry of Fear // No Im Not a Human // Afraid of Monsters
+☾ :: Fandoms INT : La Luna Falsa (The Fake Moon) // Adopting a Werewolf // Cry of Fear // No Im Not a Human // Afraid of Monsters 
 
-☾ :: DNI : Basic criteria like proshippers, racists, homophobes, etc. otherwise i dont really care
+☾ :: DNI : Basic criteria like proshippers, racists, homophobes, etc. otherwise i dont really care 
