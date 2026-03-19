@@ -1,4 +1,4 @@
-☾ :: pls whisper 2 int i might be offtab/afk sometimes // u can c+h freely if i know you!! // im mainly near the spawn, docks, bakery, ninah area or tmc area in various skins but mostly AaW (Adopting a Werewolf), LLF (La Luna Falsa) or cof (cry of fear)  .  
+☾ :: pls whisper 2 int i might be offtab/afk sometimes // u can c+h freely if i know you!! // im mainly near spawn, docks, bakery, ninah area or tmc area in various skins but mostly AaW (Adopting a Werewolf), LLF (La Luna Falsa) or cof (cry of fear)  .  
 
 ☾ :: BYI - if you have your status on ponytown as offline and we havent talked in a while and i have no other way to contact you i might end up unfriending you after a while!  .  
 
